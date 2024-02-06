@@ -1,4 +1,4 @@
-NONO!!!!!!!! ITSOK HAM! OMGF MY STAMPS </333
+FUCKU HAM! OMGF MY STAMPS </333
 
 ![d](https://media.discordapp.net/attachments/1073270199878418433/1138678576410017922/blinkiesCafe-5i.png?width=187&height=25) 
 
