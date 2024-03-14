@@ -1,4 +1,4 @@
-FUCKU HAM! OMGF MY STAMPS </333
+HELL NAHHHHHHHHHHHhhh
 
 ![d](https://media.discordapp.net/attachments/1124812862213341346/1138678593128505384/blinkiesCafe-5i.png?ex=65fa5b14&is=65e7e614&hm=a31aebaab581ec36d3089c19eca63e8462343bf755dd335603c11fe78f3d7238&=&format=webp&quality=lossless&width=187&height=25
 ) ![f](https://media.discordapp.net/attachments/1124812862213341346/1205373454866714704/blinkiesCafe-p6.png?ex=65fd0c82&is=65ea9782&hm=9bcabfa369ce980a2189d4deb4604323f33a877c0a744c776a835b6f2b09518e&=&format=webp&quality=lossless&width=187&height=25)
