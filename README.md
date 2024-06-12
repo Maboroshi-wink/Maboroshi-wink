@@ -1,4 +1,5 @@
 QUIT IT BITCHASS. I FUCKED UP TwT
+
 ![s](https://64.media.tumblr.com/06bc5dfff92a7816a3387a63f8f0b95d/55716263dd58e6e4-bc/s250x400/5709c5534b66ab13542ed7e5045dc8ed356edde9.gifv) ![s](https://64.media.tumblr.com/ad6ed2e2ffb2de27a567a3f67ade1829/8fb5aaee40d5acde-c3/s250x400/88cbe3f17e1436951fa78e6431342b1a19846fea.gifv) ![s](https://64.media.tumblr.com/ba52f061feb5dc48471ab5cf84a5295c/8fb5aaee40d5acde-8c/s250x400/df90c5b94d5a6da501e20617bce9d0ed124a07a5.gifv) 
 
 ![s](https://64.media.tumblr.com/488e3ec71fb845d426d3c4fec581a3b4/55716263dd58e6e4-92/s100x200/c0167d54a6d5733d1fb12885ea35660f322e1f21.pnj) ![s](https://64.media.tumblr.com/b3927243abb74dafc39472c303d516d8/55716263dd58e6e4-7c/s100x200/f6b471cd844bf55508f8893bef6d11ba3190a1b9.pnj) ![s](https://64.media.tumblr.com/bebab04e71630fe1c5d5a750fa45ef83/c3f0591e75d04da1-14/s100x200/8598b4af38a64289ce3a63147d411efc4f3cfe54.pnj) ![s](https://64.media.tumblr.com/4190a9dd76687eed039eefe4ab499b3e/55716263dd58e6e4-e6/s100x200/3a330422a6b078016fbcfd5dab67e35fc65ae757.pnj) ![s](https://64.media.tumblr.com/64c3c3ec741bada65746a512dede4ed6/373b458950a3a34b-d5/s100x200/f5504b16999d9910b830ed68d9503c3b15b5ec76.gifv)
