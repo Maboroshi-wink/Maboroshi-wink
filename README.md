@@ -1,7 +1,6 @@
 ![image](https://github.com/user-attachments/assets/66a8287d-e8bc-4587-a665-4cdc5593a028)
 
-칸바루 스루가 장발이 더 이쁘다는 새끼들, 즉시 뒤지시길바람. 미감존나뒤짐. 같은 공기 마시는거 개아까움.
-
+IloveherSM TwT
 
 <!--
 **LAy7LOW2/LAy7LOW2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
