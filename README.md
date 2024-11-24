@@ -1,4 +1,5 @@
-My STAMPIES<3333333333
+NO MORE YAOI(FAKE)
+
 
 ![s](https://64.media.tumblr.com/06bc5dfff92a7816a3387a63f8f0b95d/55716263dd58e6e4-bc/s250x400/5709c5534b66ab13542ed7e5045dc8ed356edde9.gifv) ![s](https://64.media.tumblr.com/ad6ed2e2ffb2de27a567a3f67ade1829/8fb5aaee40d5acde-c3/s250x400/88cbe3f17e1436951fa78e6431342b1a19846fea.gifv) ![s](https://64.media.tumblr.com/ba52f061feb5dc48471ab5cf84a5295c/8fb5aaee40d5acde-8c/s250x400/df90c5b94d5a6da501e20617bce9d0ed124a07a5.gifv) 
 
